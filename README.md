@@ -43,7 +43,7 @@ Based in Central Florida. Two people: Thomas (Founder — builds and operations)
   - **X / Twitter:** [@workloadrelief_](https://x.com/workloadrelief_)
   - **Instagram:** [@workloadrelief](https://www.instagram.com/workloadrelief/?hl=en)
   - **TikTok:** [@workloadrelief](https://www.tiktok.com/@workloadrelief?lang=en)
-  - **Facebook:**  [@workloadreliefLLC](https://www.facebook.com/profile.php?id=61580132113303)
+  - **Facebook:**  [@workloadrelief](https://www.facebook.com/profile.php?id=61580132113303)
 
   ---
   
